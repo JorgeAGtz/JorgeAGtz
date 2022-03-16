@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on Public Policy and Sport analysis
 - 📫 How to reach me: on twitter @jagtz27 (I speak Spanish, English and French)
 - (Y) I'm fan of: Tigres UANL, Real Zaragoza, Real Madrid and Oakland Athletics
-- (FF) I don't want to meet people. Because I feel sad.
+- (FF) I want to meet people and hang around.
+
 <!---
 JorgeAGtz/JorgeAGtz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
