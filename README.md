@@ -5,6 +5,7 @@
 - 📫 How to reach me: on twitter @jagtz27 (I speak Spanish, English and French)
 - (Y) I'm fan of: Tigres UANL, Real Zaragoza, Real Madrid and Oakland Athletics
 - (FF) I want to meet people and hang around.
+- (:@) Don't do this to me again.
 
 <!---
 JorgeAGtz/JorgeAGtz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
